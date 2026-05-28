@@ -1,0 +1,1 @@
+# nobeyama_AMD
